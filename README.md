@@ -6,3 +6,4 @@ Colors in the Shadow:Burgundy, Blue, Grey
 _**Praise the Alamo**_
 
 I don't know how to make a website, here's the image
+Place-Texas Discord Link: https://discord.gg/HkcXPqHx
